@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi its me lerin j ukken,btech cse,UCEK
 
 <!--
 **Lerinjukken/lerinjukken** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
